@@ -1,2 +1,1 @@
-# sfy
-Mybisnismedia@
+MyBisnisMedia@blogspot.com 
